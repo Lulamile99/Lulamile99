@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Lulamile Plati
-- 🌱 I’m currently learning at UCT
+- 🌱 I’m currently studying at UCT
 - 📫 You can reach me at lulabenni45@gmail.com
 
 <!---
